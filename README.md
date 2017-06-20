@@ -1,1 +1,0 @@
-# laityc.github.io
